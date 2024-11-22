@@ -8,6 +8,4 @@ i often hang out in the comics area above spawn (18+). if i dont respond im prob
 
 dni: basic dni criteria + zionists and weirdos.
 
-![alt text](https://github.com/user-attachments/assets/f5a45f40-b507-4046-ba1f-96e2b8817de3)
-
 
