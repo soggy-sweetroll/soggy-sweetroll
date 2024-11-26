@@ -8,3 +8,5 @@ i often hang out in the comics area above spawn (18+). if i dont respond im prob
 
 dni: basic dni criteria + zionists and weirdos.
 i *will* hide you
+
+please don't randomly fq me. either ask or at least have spoken to me a bit. 
