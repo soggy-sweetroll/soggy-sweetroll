@@ -10,5 +10,6 @@ dni: basic dni criteria + zionists and freaks (/neg).
 i will hide you
 
 boundaries idk:
-please don't randomly fq me. either ask or at least have spoken to me a bit. 
-don't randomly initate rp with me, esp when i dont know u (that shit's annoying)
+- please don't randomly fq me. either ask or at least have spoken to me a bit. 
+- don't randomly initate rp with me, esp when i dont know u (that shit's annoying)
+- pls don't push your ships on me when im a character u ship another with (unless its jokey banter)
