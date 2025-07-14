@@ -1,6 +1,6 @@
 # hi
 
-i'm xen or atlas !
+i'm atlas !
 
 not good with bios so [peep my messy strawpage](https://soggysweetroll.straw.page) for more info abt me & stuff i like
 
