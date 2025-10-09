@@ -11,5 +11,5 @@ i will hide you
 
 boundaries idk:
 - please don't randomly fq me. either ask or at least have spoken to me a bit. 
-- don't randomly initate rp with me, esp when i dont know u (that shit's annoying (unless its like saying silly stuff in character yk))
+- if i don't know u, pls don't randomly initate rp with me (that shit's annoying (unless its like saying silly stuff in character yk))
 - pls don't push your ships on me when im a character u ship another with (unless its jokey banter)
